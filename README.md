@@ -16,7 +16,7 @@
 
 - 📫 How to reach me **khandelwalpiyush02@gmail.com**
 
-- ⚡ Fun fact **I Love To I love to work with fun, also like watching movies and a food addicted person.**
+- ⚡ Fun fact **I Love To work with fun, also like watching movies and a food addicted person.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
